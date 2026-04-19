@@ -1,2 +1,2 @@
-# seller-sneller-webshop20.github.io
+# naai_webshop.com
 # hier kan je zelfgemaakte naai artikelen kopen.
